@@ -97,6 +97,6 @@ This project is licensed under the MIT License - see the [LICENSE](LICENSE) file
 
 ## 📧 Contact
 
-Your Name - [@yourtwitter](https://twitter.com/yourtwitter)
-
-Project Link: [https://github.com/yourusername/Type_List](https://github.com/yourusername/Type_List) 
+Eri R Jorge - [@Tachi_exe](https://x.com/Tachi_exe)
+........... - [@tachi_bana.exe](https://www.instagram.com/tachi_bana.exe/)
+........... - [tachi_bana.exe](502441488001531915)
