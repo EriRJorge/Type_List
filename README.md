@@ -97,5 +97,4 @@ This project is licensed under the MIT License - see the [LICENSE](LICENSE) file
 
 ## 📧 Contact
 
-Eri R Jorge - X [@Tachi_exe](https://x.com/Tachi_exe)
-- Insta [@tachi_bana.exe](https://www.instagram.com/tachi_bana.exe/)
+Eri R Jorge - X [@Tachi_exe](https://x.com/Tachi_exe) - Insta [@tachi_bana.exe](https://www.instagram.com/tachi_bana.exe/)
